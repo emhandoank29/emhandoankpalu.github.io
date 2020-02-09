@@ -1,2 +1,0 @@
-# emhandoankpalu.github.io
-emhandoankpalu
